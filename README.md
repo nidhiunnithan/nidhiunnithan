@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nidhiunnithan
+- 👀 I’m interested in climbing, football, reading and drawing.
+- 🌱 I’m currently learning to develop my data analysis skills through a skills bootcamp provided by Purple Beard Limited.
+- 📫 How to reach me: nidhi.u.unnithan@gmail.com
